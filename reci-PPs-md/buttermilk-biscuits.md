@@ -11,7 +11,6 @@
 | ☐ 325g all-purpose flour (plus extra for hands & surface) | ☐ 1 Tbsp baking powder |
 | ☐ 1/2 tsp baking soda            | ☐ Pinch of salt                  |
 | ☐ 1 stick unsalted butter, frozen | ☐ 1 cup cold buttermilk (+ a little more if needed) |
-| ☐                                | ☐                                |
 
 ---
 
@@ -30,8 +29,6 @@
 11. Cut biscuits; rework scraps to cut a few more.  
 12. Arrange biscuits in cast iron so they lightly touch.  
 13. Bake 20–30 minutes, depending on biscuit size.  
-14. _________________________________________________________________  
-15. _________________________________________________________________  
 
 ---
 
@@ -39,5 +36,3 @@
 
 A process honed with time.  
 Time: about 45 minutes if you know what you’re doing.  
-____________________________________________________________________
-____________________________________________________________________

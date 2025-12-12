@@ -29,8 +29,6 @@
 8. Mix 1/4 cup (50 g) granulated sugar with 1/2 tsp cinnamon.  
 9. Brush or dip donuts with remaining melted butter (3 Tbsp / 43 g).  
 10. Roll tops in cinnamon sugar.  
-11. _________________________________________________________________  
-12. _________________________________________________________________  
 
 ---
 
@@ -39,4 +37,3 @@
 Get a muffin-size Bundt cake pan thing for donut effect - but really cupcakes more than nuts.
 
 **Apple Cider:**  5 apples, 1 orange, 2 cinnamon sticks, 1 t. pumpkin pie spice. Quarter fruit, put in pot with spices, cover with water.  Simmer ~2 hrs until soft, mash, simmer 15 more, strain.  
-____________________________________________________________________

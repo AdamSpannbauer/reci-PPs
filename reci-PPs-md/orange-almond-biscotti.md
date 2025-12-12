@@ -36,15 +36,10 @@
 15. Return slices to oven 15–20 minutes, flipping halfway; bake longer for crispier biscotti.  
 16. Transfer to wire rack to cool.  
 17. Optional: dip in chocolate (does not travel as well).  
-18. _________________________________________________________________  
-19. _________________________________________________________________  
 
 ---
 
 **Notes**
 
-My favorite Christmas cookie. Delicious, forgiving, and produces excellent scraps while making it.  
+Bryan's favorite Christmas cookie. Delicious, forgiving, and produces excellent scraps while making it.  
 Time: ~2 hours. Makes about 3 dozen.  
-____________________________________________________________________
-____________________________________________________________________
-____________________________________________________________________

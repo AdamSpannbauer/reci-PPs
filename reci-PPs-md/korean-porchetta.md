@@ -13,7 +13,6 @@
 | ☐ 1 Tbsp sesame oil              | ☐ 1 Tbsp rice vinegar            |
 | ☐ 6 cloves garlic, minced        | ☐ 2 Tbsp grated ginger           |
 | ☐ Black pepper                   | ☐ Kosher salt for skin (1–2 Tbsp) |
-| ☐                                | ☐                                |
 
 ---
 
@@ -31,8 +30,6 @@
 10. Increase oven to 500°F; roast 20–25 minutes, rotating to blister skin.  
 11. Rest 20 minutes, uncovered.  
 12. Slice into rounds or cubes; pan-fry in cast iron to crisp (no oil needed).  
-14. _________________________________________________________________  
-15. _________________________________________________________________  
 
 ---
 
@@ -40,4 +37,3 @@
 
 For lettuce wraps: serve with rice, lettuce (duh), pickled daikon (1 c rice vinegar, 1/2 c sugar, 1 T salt; pickle 1-24 hrs), spinach namul (blanch/wilt spinach flavor w/1 T soy, 1 clove garlic, 1½ t sesame oil, 1 t sesame seeds), 
 and ssamjang (nice sauce for it).
-____________________________________________________________________

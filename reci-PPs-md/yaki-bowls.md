@@ -35,14 +35,10 @@
 11. Remove from heat and brush chicken all over with thickened teriyaki sauce.  
 12. Divide rice into bowls; top with broccolini and chicken.  
 13. Garnish with green onions, toasted sesame seeds, and red pepper flakes (optional).  
-14. _________________________________________________________________  
-15. _________________________________________________________________  
 
 ---
 
 **Notes**
 
-Keep the sauce split: half for marinating, half for reducing into the glaze.  
-____________________________________________________________________
 ____________________________________________________________________
 ____________________________________________________________________

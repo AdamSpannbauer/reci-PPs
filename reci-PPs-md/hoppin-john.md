@@ -29,14 +29,9 @@
 8. Add dried peas; pour in broth until peas are nearly covered.  
 9. Bring to a simmer; cook ~2 hours, stirring occasionally, until peas are soft.  
 10. Add broth as needed during cooking.  
-11. _________________________________________________________________  
-12. _________________________________________________________________  
 
 ---
 
 **Notes**
 
 New Year’s Day classic—or anytime luck is needed. Serve with cornbread and greens.  
-____________________________________________________________________
-____________________________________________________________________
-____________________________________________________________________

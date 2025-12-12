@@ -12,7 +12,6 @@
 | ☐ 1 can Rotel (drained)          | ☐ 1 (8 oz) pkg cream cheese, cubed |
 | ☐ 8 flour tortillas (8")         | ☐ 2 cups Monterey Jack cheese, shredded |
 | ☐ 1 pint whipping cream          | ☐ Seasonings: 1/2 tsp paprika, salt, pepper, onion powder, garlic powder |
-| ☐                                | ☐                                |
 
 ---
 
@@ -31,8 +30,6 @@
 11. Drizzle whipping cream evenly over the top.  
 12. Cover with foil; bake 30 minutes at 350°F.  
 13. Remove foil and bake an additional 15 minutes, until golden brown.  
-14. _________________________________________________________________  
-15. _________________________________________________________________  
 
 ---
 

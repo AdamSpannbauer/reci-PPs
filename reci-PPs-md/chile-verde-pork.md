@@ -14,7 +14,6 @@
 | ☐ 1/2 T. dried oregano           | ☐ 2 cups low-sodium chicken broth |
 | ☐ 4 fresh poblano chiles, seeded & sliced in half | ☐ 2 fresh jalapeños, seeded & halved |
 | ☐ 1.5 lbs tomatillos, husks removed | ☐ 1/2 cup cilantro, coarsely chopped |
-| ☐                                | ☐                                |
 
 ---
 

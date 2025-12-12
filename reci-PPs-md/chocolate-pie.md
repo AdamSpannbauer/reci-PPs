@@ -38,6 +38,3 @@
   • Graham crackers to yield 2 cups crumbs **or** Oreos (centers removed) to yield 1 1/2 cups crumbs  
   • Add 1/4 c. sugar + 1 stick melted butter  
   • Press into 9-inch pie pan; chill; press again with another pan; bake at 375°F for 15 minutes; cool completely before filling.  
-____________________________________________________________________
-____________________________________________________________________
-____________________________________________________________________
