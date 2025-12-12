@@ -1,10 +1,6 @@
 <p align="right">
-  <img src="cover-art/cover-art.png" align="right" width="20%" />
+  <img src="cover-art/cover-art.png" align="right" width="30%" />
 </p>
-
-# reci-PPs
-
-## Table of Contents
 
 - Appetizers / Snacks
   - [Spicy Oyster Crackers](reci-PPs-md/spicy-oyster-crackers.md)
@@ -31,4 +27,6 @@
 - New Year’s Luck
   - [Hoppin’ John](reci-PPs-md/hoppin-john.md)
 
-<img src="cover-art/pp-logo.png" align="center" width="140" />
+<p align="center">
+  <img src="cover-art/pp-logo.png" width="5%" />
+</p>
