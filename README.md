@@ -1,4 +1,6 @@
-<img src="cover-art/pp-logo.png" align="right" width="140" />
+<p align="right">
+  <img src="cover-art/cover-art.png" align="right" width="20%" />
+</p>
 
 # reci-PPs
 
@@ -29,6 +31,4 @@
 - New Year’s Luck
   - [Hoppin’ John](reci-PPs-md/hoppin-john.md)
 
-<p align="center">
-  <img src="cover-art/cover-art.png" width="50%" />
-</p>
+<img src="cover-art/pp-logo.png" align="center" width="140" />
