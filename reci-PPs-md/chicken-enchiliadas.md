@@ -1,6 +1,6 @@
 **Title:** Chicken Enchiladas
 
-**Chef:** Ken
+**Chef:** Lauren
 
 ---
 
