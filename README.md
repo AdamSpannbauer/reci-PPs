@@ -21,6 +21,7 @@
   - [Carrot Risotto With Chile Crisp](reci-PPs-md/carrot-risotto-chile-crisp.md)
 - Desserts / Sweets
   - [Emeril’s Chocolate Cream Pie](reci-PPs-md/chocolate-pie.md)
+  - [Crème Brûlée](reci-PPs-md/creme-brulee.md)
   - [Apple Cider Donuts](reci-PPs-md/cider-cake-donuts.md)
   - [Orange and Almond Biscotti](reci-PPs-md/orange-almond-biscotti.md)
   - [Sticky Bottom Buns](reci-PPs-md/sticky-bottom-buns.md)
