@@ -14,7 +14,7 @@
 | ☐ 1 cup mashed sweet potato (1 medium) | ☐ 8 Tbsp unsalted butter, frozen |
 | ☐ 1 Tbsp heavy cream (for brushing) | ☐ 0.5 lb sausage                |
 | ☐ 2 Tbsp unsalted butter (gravy) | ☐ 2 Tbsp all-purpose flour (gravy) |
-| ☐ 2 Tbsp maple syrup             | ☐ 2 tsp black pepper             |
+| ☐ 2 Tbsp maple syrup             | ☐ 1/2 tsp black pepper             |
 | ☐ 0.75 cup whole milk (gravy)    | ☐ 2 Tbsp heavy cream (gravy)     |
 
 ---
